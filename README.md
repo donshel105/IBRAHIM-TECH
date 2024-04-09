@@ -69,6 +69,6 @@ The DON-SHEL 𝙈𝘿 is made available under the [GPL-3 license](https://github
 </h2>
    
 ## 
-𝙆𝙄𝙉𝙂 𝙄𝘽𝙍𝘼𝙃𝙄𝙈 𝙈𝘿
+DON-SHEL 𝙈𝘿
 
 
