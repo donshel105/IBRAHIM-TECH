@@ -5,26 +5,26 @@ BOT SLEEPING PROBLEM FIXED
                      
                       
    <div align="center">
- 👑<b>KING IBRAHIM MD</b>👑</b>
+ 👑<b>DON-SHEL MD</b>👑</b>
 	   
- HAVING ANY PROBLEM DM ME👉👉https://wa.me/message/74F2PC4JA4F3P1
+ HAVING ANY PROBLEM DM ME👉👉https://wa.me/254794942615
   
   
   <div align="center">
 	  
 </p>
 </a>
-<h1 align="center"><b>HEY I AM KING IBRAHIM</b><img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35"></h1>
+<h1 align="center"><b>HEY I AM DON_SHEL </b><img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35"></h1>
 
 
 <p align="center">
   <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Time+New+Roman&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Assalamu+O+Alaikum+Warahmatullah..&hearts;++;Self-taught+Back-End+Developer,;Always+creating+best+bots,;My+Hobby+Is+to+deploy+WhatsApp+bots,;Active+Hacker/Ready+to+hacker+any+thing,;Love+to+learn+new+stuffs..<3"></a>
 </p>
                        
-  <a href="https://ibb.co/N6NMDtn"><img src="https://telegra.ph/file/963f9c4a41319399f90be.jpg" alt="01" border="0" /></a>                     
-  𝗢𝗪𝗡𝗘𝗥 𝗡𝗔𝗠𝗘 : 𝗜𝗕𝗥𝗔𝗛𝗜𝗠 𝗡𝗚𝗢𝗬𝗔
+  <a href="https://ibb.co/N6NMDtn"><img src="https://telegra.ph/file/d4c7bbeeae2bf3074a7ee.jpg" alt="01" border="0" /></a>                     
+  𝗢𝗪𝗡𝗘𝗥 𝗡𝗔𝗠𝗘 : SHELDON DONSHEL
                        
- 𝗢𝗪𝗡𝗘𝗥 𝗡𝗨𝗠𝗕𝗘𝗥 : +25410772666
+ 𝗢𝗪𝗡𝗘𝗥 𝗡𝗨𝗠𝗕𝗘𝗥 : +254794942615
                        
   𝗠𝗔𝗗𝗘 𝗜𝗡 𝗞𝗘𝗡𝗬𝗔😂🇰🇪😂🤣 
   
@@ -34,7 +34,7 @@ BOT SLEEPING PROBLEM FIXED
 
 📌 NEXT SCAN THE QR AND TAKE THE SEASSON ID.
 
-📌 AFTER CLICK FOR YOUR SIUTABLE DEPLOYMENT PLATFORM AND DEPLOY THE BOT.  
+📌 AFTER CLICK FOR YOUR SUITABLE DEPLOYMENT PLATFORM AND DEPLOY THE BOT.  
 
 
 NEW METHOD ADDED (SCAN SESSION WITH YOUR NUMBER)
@@ -62,7 +62,7 @@ EXAMPLE PUT IN YOUR NUMBER: 2547XXXXXXXX,THEN TAP SUBMIT AND COPY THAT CODE TO Y
 - [Sam Pamday](https://github.com/Sampandey001) 
 
 
-The 𝙆𝙄𝙉𝙂 𝙄𝘽𝙍𝘼𝙃𝙄𝙈 𝙈𝘿 is made available under the [GPL-3 license](https://github.com/SuhailTechInfo/Suhail-Md/blob/main/LICENCE).
+The DON-SHEL 𝙈𝘿 is made available under the [GPL-3 license](https://github.com/SuhailTechInfo/Suhail-Md/blob/main/LICENCE).
 
 
 <h2 align="center">  NOTICE
